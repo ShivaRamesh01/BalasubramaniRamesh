@@ -41,6 +41,6 @@ Data Engineer with 2+ years of experience in Databricks, Azure Data Lake, and Bi
 ---
 
 ## 📂 Get in Touch
-- LinkedIn: [Balasubramani Ramesh](www.linkedin.com/in/balasubramani-ramesh-798056215/)
+- LinkedIn: [Balasubramani Ramesh](https://www.linkedin.com/in/balasubramani-ramesh-798056215/)
 - GitHub: [ShivaRamesh01](https://github.com/ShivaRamesh01)
 - Email: shivarameshofficial@gmail.com
