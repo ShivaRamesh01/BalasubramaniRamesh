@@ -1,6 +1,6 @@
 # Balasubramani Ramesh
 📍 Coimbatore, India
-📞 Phone: 9944740695 | Email: 2189775@cognizant.com
+📞 Phone: 9944740695 | Email: shivarameshofficial@gmail.com
 
 ---
 
